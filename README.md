@@ -1,4 +1,4 @@
-![GitHub](https://komarev.com/ghpvc/?username=reapcord&style=flat)
+[![](https://visitcount.itsvg.in/api?id=reapcord&icon=0&color=0)](https://visitcount.itsvg.in)
 [![YouTube](https://img.shields.io/badge/YouTube-reapcxrd-red?style=flat&logo=youtube)](https://youtube.com/@reapcxrd)
 <br>
 
