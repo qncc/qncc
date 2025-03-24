@@ -4,9 +4,9 @@
 
 <img src="https://github.com/user-attachments/assets/115f3f89-49dd-4149-8f49-0bafe0646d56" width="30"/> **Recent project:** [Credo](https://youtu.be/ENccvoS1cTk)
 
-<img src="https://github.com/user-attachments/assets/115f3f89-49dd-4149-8f49-0bafe0646d56" width="30"/> **Currently working on:** [Argosax](https://tiktok.com/reapcxrd)
+<img src="https://github.com/user-attachments/assets/115f3f89-49dd-4149-8f49-0bafe0646d56" width="30"/> **Currently working on:** [Argosax](https://tiktok.com/c_sket)
 
-<img src="https://github.com/user-attachments/assets/115f3f89-49dd-4149-8f49-0bafe0646d56" width="30"/> **Contact me:** [@pledgeful](https://discord.com/users/1192836851967475765) / [@s__rda](https://discord.com/users/1001975390337777706)
+<img src="https://github.com/user-attachments/assets/115f3f89-49dd-4149-8f49-0bafe0646d56" width="30"/> **Contact me:** [@unburdening](https://discord.com/users/718172983201628190) / [@preciseness](https://discord.com/users/1001975390337777706)
 
 ### 🚦 Status
 
